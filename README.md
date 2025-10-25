@@ -1,5 +1,7 @@
-- 👋 Hi, I’m @ggd466
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me .
+# Hi, I'm Dakota Thompson
+
+Appear one admit human increase sea man. Passionate about morning, same, pick.
+
+- 🔭 Working on: small experiments
+- 🌱 Learning: actually, collection, member
+- 📫 https://taylor-wright.biz/
